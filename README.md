@@ -16,7 +16,7 @@ As my freelance practice continued to thrive, I transitioned to being 100% freel
 
 [Book Me](https://hibrice.com/#contact)
 
-[Download my resume](https://brice.design/CV-BriceLEPOUDER-2025-EN.pdf)
+[Download my resume](https://brice.design/CV-BriceLEPOUDER-2025-FR.pdf)
 
 [Website](https://hibrice.com/)
 
