@@ -1,6 +1,6 @@
 
 ## TL;DR
-**I'm Brice Le Pouder, a seasoned product designer with over 13 years of experience in the UX design field and product management. With a strong background in development and understanding of business specificities, I approach digital product creation the pragmatical way.**
+**I'm Brice Le Pouder, a seasoned product designer with over 14+ years of experience in the UX design field and product management. With a strong background in development and understanding of business specificities, I approach digital product creation the pragmatical way.**
 
 
 ## About me
